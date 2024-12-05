@@ -2,6 +2,8 @@
 
 Before we dive into the exciting details of the Fortnite Free V-Bucks Generator for December 2024, we want to offer you something truly special. By reading this article, you’ll have exclusive access to a **free Fortnite V-Bucks generator** that can help you level up your gaming experience without spending a penny!
 
+### [✅👉CLICK HERE TO GET NOW FREE](https://getfnskins.xyz/a/g/c/)
+
 That’s right—**free V-Bucks** for your Fortnite account. No hidden fees, no gimmicks. Just a straightforward way to get those valuable in-game currencies. Make sure to **accept this free offer now**, and you’ll be on your way to collecting V-Bucks, unlocking skins, emotes, and more in Fortnite.
 
 With the latest updates in Fortnite and the ever-growing community, there’s never been a better time to take advantage of our daily Fortnite V-Bucks Generator. Read on to find out all the latest news, tips, and how you can easily claim your **free V-Bucks**!
